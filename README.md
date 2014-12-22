@@ -35,11 +35,37 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Greenes vision vvritten at the instant of his death. Conteyning a penitent passion for the folly of 
+
+1. To the right worshipfull and his especiall good friend, M. Nicholas Sanders of Ewell Esquier, T. Newman wisheth all feliciti•.
+
+1. To the Gentlemen Readers, Health.
+
 #####Body#####
-Greenes vision vvritten at the instant of his death. Conteyning a penitent passion for the folly of 
+
+1. GREENES VISION.
+
+1. Greenes trouble of minde.
+
+1. Iohn Gower to the Authour.
+
+1. Sentences collected out of the Authours bookes.
+How saiest thou Gower, quoth Chawcer to these sentences? are they not worthie graue eares, and neces
+1. Chawcers tale of Iealousie.
+WHat saist thou quoth Chawcer to this tale, is there any offence to be taken, is it not a good inuec
+1. Iohn Gowers tale against Iealousie.
+
+1. Alexander Vandermast, his iealious meditation with himselfe.
+
+1. Theodoras meditation of her Innocencie.
+
+1. Alexanders sentences in his Lunacie, against beautie.
+
+1. The ould mans description of iealousie.
+
+1. The Authours answere to Gower and Chawcer.
+
 #####Back#####
-Greenes vision vvritten at the instant of his death. Conteyning a penitent passion for the folly of 
+Imprinted at London for Thomas Newman, and are to be sould at his shop in Fleetestreete, in Saint Du
 **Types of content**
 
   * There are 227 **verse** lines!
